@@ -1,4 +1,4 @@
-# 
+# Intelligent AI Color Palette Generator modèles. Avec sécurité de l'IA et réseaux de neurones — optimisé pour des performances maximales.
 
 
 
